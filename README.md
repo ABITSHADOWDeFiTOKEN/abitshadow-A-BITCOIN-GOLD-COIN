@@ -1,0 +1,2 @@
+# abitshadow-A-BITCOIN-GOLD-COIN
+ABITSHADOW
